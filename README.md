@@ -7,4 +7,4 @@ Hi I am not looking for work so pls pls pls stop emailing me.
 - 💬 Ask me about nothing 
 - 📫 How to reach me: your trash can
 - 😄 Pronouns: He/They
-- ⚡ Fun fact: I like my job. I also make [youtube videos](https://www.youtube.com/watch?v=r5EjvtyLJ1g&t=115s)
+- ⚡ Fun fact: I like my job. I also make [youtube videos](https://www.youtube.com/channel/UCaYEz0nbJzHgaIR4QtK7Xkg)
